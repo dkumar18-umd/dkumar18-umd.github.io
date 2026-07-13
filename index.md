@@ -12,7 +12,7 @@ UMD Website [Danish Kumar](https://arch.umd.edu/about/people/danish-kumar).
 
 **Program Manager for Climate Change | Civil Engineer | Sustainability & Energy Systems**
 
-📍 College Park, MD | 📧 dkumar18@umd.edu | 🔗 [LinkedIn](https://linkedin.com/in/danish-kumar)
+📍 College Park, MD | 📧 dkumar18@umd.edu | 🔗 [LinkedIn](https://linkedin.com/in/danish-kumaar)
 
 ---
 
